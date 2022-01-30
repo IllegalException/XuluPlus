@@ -1,5 +1,5 @@
 # XuluPlus-For-AntiChads
 why would you want this this is so sad, its just ovyey renamed
 
-cracked like solja boy
+cracked like soulja boy
 
